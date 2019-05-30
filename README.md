@@ -4,4 +4,4 @@ NIM : 1177050047
 Nama : Nurlela
 NIM : 1177050125
 
-LINK YT : https://www.youtube.com/edit?o=U&ar=2&video_id=fAR3PMRkjPU
+LINK YT : https://www.youtube.com/watch?v=fAR3PMRkjPU
